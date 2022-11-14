@@ -41,7 +41,7 @@ BRAND ANALYSIS
 
 6)Favorites brand in South_South region in Nigeria
 
-7)Bear consumption in Nigeria
+7)Beer consumption in Nigeria
 
 8)Level of consumption of Budweiser in the regions in Nigeria
 
